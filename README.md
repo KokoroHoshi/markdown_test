@@ -1,5 +1,5 @@
 
-+   ![](https://hololivepro.com/wp-content/uploads/2024/03/0311_topkv_pc.png) ![](https://hololivepro.com/wp-content/uploads/2024/03/0311_topkv_01.png)
++   ![](https://hololivepro.com/wp-content/uploads/2024/03/0311_topkv_pc.png)
 
 ## ABOUT
 
